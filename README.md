@@ -18,8 +18,7 @@ done-for-you. I operate the system; you get the growth. It isn't software you lo
 system I run for you. A few clients, by application. **CVPS is the working proof. Early to this in California.**
 
 ## Investing
-I invest in real estate and early-stage companies, and I'm pursuing California real estate
-licensure with a long-term thesis around furnished housing for traveling medical professionals.
+I invest in real estate and early-stage companies, and I'm pursuing California real estate licensure.
 
 ## Find me
 One name, one story, everywhere. The hub is **[jessemoraga.com](https://jessemoraga.com)** — everything else points back to it.
