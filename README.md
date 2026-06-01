@@ -21,6 +21,15 @@ system I run for you. A few clients, by application. **CVPS is the working proof
 I invest in real estate and early-stage companies, and I'm pursuing California real estate
 licensure [private strategy redacted].
 
+## Find me
+One name, one story, everywhere. The hub is **[jessemoraga.com](https://jessemoraga.com)** — everything else points back to it.
+
+- 🌐 **Site / hub:** <https://jessemoraga.com>
+- 💼 **LinkedIn:** <https://www.linkedin.com/in/jesse-moraga-6784b7412>
+- ✖️ **X:** [@JesseMoraga_](https://x.com/JesseMoraga_)
+- 📸 **Instagram:** [@jessemoragaofficial](https://www.instagram.com/jessemoragaofficial)
+- ✉️ **Email:** jesse@jessemoraga.com
+
 ---
 
 *I build the systems that run businesses — starting with my own.* → <https://jessemoraga.com>
