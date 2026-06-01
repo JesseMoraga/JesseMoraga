@@ -27,7 +27,7 @@ One name, one story, everywhere. The hub is **[jessemoraga.com](https://jessemor
 - 🌐 **Site / hub:** <https://jessemoraga.com>
 - 💼 **LinkedIn:** <https://www.linkedin.com/in/jesse-moraga-6784b7412>
 - ✖️ **X:** [@JesseMoraga_](https://x.com/JesseMoraga_)
-- 📸 **Instagram:** [@jessemoragaca](https://www.instagram.com/jessemoragaca)
+- 📸 **Instagram:** [@jessemoragaofficial](https://www.instagram.com/jessemoragaofficial)
 - ✉️ **Email:** jesse@jessemoraga.com
 
 ---
