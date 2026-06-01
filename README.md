@@ -15,7 +15,7 @@ I designed and built the AI system that runs 700+ of CVPS's cases end-to-end: in
 document generation, court forms, client updates, invoicing, case tracking. I built that system
 to run my own company — now I'm bringing it to other operators as **Growth-as-a-Service**:
 done-for-you. I operate the system; you get the growth. It isn't software you log into — it's a
-system I run for you. A few clients, by application. **CVPS is the working proof. Early to this in California.**
+system I run for you. Clients by application. **CVPS is the working proof. Early to this in California.**
 
 ## Investing
 I invest in real estate and early-stage companies, and I'm pursuing California real estate licensure.
